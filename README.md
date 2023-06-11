@@ -1,4 +1,4 @@
-### Hi there 👋  Ben Bahtyyar ABAYEV
+### Hi there 👋  I am Bahtyyar ABAYEV
 ## To connect 👇
 [![Instagram Badge](https://img.shields.io/badge/-Instagram-C13584?style=flat-quare&labelColor=C13584&logo=instagram&logoColor=white&link=https://www.instagram.com/bahtik009/)](https://www.instagram.com/bahtik009/) 
 [![Medium Badge](https://img.shields.io/badge/-Medium-757575?style=flat-quare&labelColor=757575&logo=Medium&logoColor=white&link=https://medium.com/@abayevbahtyyar)](https://medium.com/@abayevbahtyyar)
